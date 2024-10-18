@@ -1,1 +1,1 @@
-# p7
+artifical intelligence
